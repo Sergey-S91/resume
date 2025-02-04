@@ -57,10 +57,9 @@ _Электронная почта:  s.v.sin.qa@gmail.ru_
 **Дополнительная информация:**
 
 Иностранные языки: English – А1;
+
 Знание ПК: уверенный пользователь;
+
 Служба в ВС РФ: мл.сержант запаса;
+
 Увлечения: бассейн, велосипед, чтение.
-
-
-[def]: https://drive.google.com/file/d/1yXBSbvqp3sacO5WRnW7_38GZ1ji5obrz/view?usp=sharing
-[def2]: https://drive.google.com/file/d/1yXBSbvqp3sacO5WRnW7_38GZ1ji5obrz/view?usp=sharing
